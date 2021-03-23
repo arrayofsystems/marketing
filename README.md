@@ -10,16 +10,22 @@
 
 
 ## People
-### Cynthia Sandoval 
+### Coordinators
+
+#### Nicole Bletnitsky 
+- [LinkedIn](https://www.linkedin.com/in/nicole-bletnitsky-10b412176/)
+
+### Marketers
+#### Cynthia Sandoval 
    - [LinkedIn](https://www.linkedin.com/in/cynthiansandoval/)
    - [Youtube](https://www.youtube.com/channel/UCexOUM5zo5gmD-BZ6X8lZxA)
    - [Website](https://www.cynthiaismarketing.com)
 
-### Karen Chalco   
+#### Karen Chalco   
    - [Course Testimonial](https://www.youtube.com/watch?v=9yIgO2DlyoU)
    - [Website](https://www.advisifymedia.com)
    
-### Dresean Ryan
+#### Dresean Ryan
    - [Website](https://dreseanryan.com)
    - [Youtube](https://www.youtube.com/user/dreseanr)
    - [LinkedIn](https://www.linkedin.com/in/dreseanryan/)
